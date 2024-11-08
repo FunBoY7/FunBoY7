@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FunBoY7
 - 👀 I’m interested in music and PCs.
-- 🌱 I’m currently learning HTML!
+- 🌱 I’m currently learning what?
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
